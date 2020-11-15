@@ -1,1 +1,2 @@
-# Coming Soon
+# East China Tea Company
+## Coming Soon!
