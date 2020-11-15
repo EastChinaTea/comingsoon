@@ -2,4 +2,4 @@
 
 Coming Soon!  
 
-Artisin Loose Leaf and Aged Teas
+Artisan Loose Leaf and Aged Teas
