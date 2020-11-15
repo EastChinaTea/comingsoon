@@ -1,4 +1,5 @@
 # East China Tea Company
 
-Coming Soon!
+Coming Soon!  
 
+Artisin Loose Leaf and Aged Teas
